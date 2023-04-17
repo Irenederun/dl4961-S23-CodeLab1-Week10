@@ -1,5 +1,4 @@
-# FILL IN INFO ABOUT YOUR GAME HERE. 
+# WEEK 10 Match Three Eggs. 
 
-DO NOT LEAVE IT LIKE THIS!!!
+Wtih Tovi and Diane
 
-Please? Please, give me content. I'm begging you. It's not that hard. Thanks.
